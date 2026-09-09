@@ -1,0 +1,1 @@
+MacroScore Preview — acesso de gravação do Conector ChatGPT Codex confirmado.
